@@ -1,1 +1,1 @@
-moved as tamperv1 https://discord.gg/tamper
+moved as swiftplay discord.gg/swftplay
